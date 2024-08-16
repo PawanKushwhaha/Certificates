@@ -1,3 +1,3 @@
 # Certificates
 
-These Certifications i have done from greatleaening.com.
+These Certifications i have done from greatlearning.com.
